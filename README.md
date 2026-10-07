@@ -1,0 +1,2 @@
+# premium-mini-fireplace-001-miniature-fireplace-mantel-c
+You've got a vision for an intricate miniature fireplace with hand-carved mantel details, but you're drowning in scattered notes, design sketches, and craft supplies. The Miniature Fireplace &amp; Mantel Carve Craft Lab solves this by giving you a complete digital workspace to plan, organize, and execute your entire project from concept to completion.
